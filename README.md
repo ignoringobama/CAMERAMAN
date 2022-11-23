@@ -1,1 +1,1 @@
-# CAMERAMAN
+# amfoto.no
